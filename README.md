@@ -15,7 +15,7 @@ Hayden, HFeeney, tofu, bike riding
 
 Jonas, UnknownPumpkinPie, Pumpkin Pie, Coding Stuff
 
-Max, GraciousMaxmus (probably going to change it cus theres a typo), i cant decide, drawing
+Max, GraciousMaximus, i cant decide, drawing
 
 Zachary, BeardedDragon15, pasta, Minecraft or video games
 
